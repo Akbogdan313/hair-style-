@@ -1,2 +1,3 @@
 # hair-style-
 Pentru programari dati-mi mesaj pe innstagram sau contactati-ma la numarul........
+Follow pe ig la akbogdan3 pentru a vedea ce urmeaza mai departe si a sta pregatiti la  marfa noua
